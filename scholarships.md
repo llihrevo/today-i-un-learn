@@ -1,0 +1,1 @@
+I don't think I have a good chance with getting a scholarship. Especially an international one. Sad but you know i wouldn't be. just says im a free person. Not bounded to anything! Although yeah. Wel I don't have time to sulk now
